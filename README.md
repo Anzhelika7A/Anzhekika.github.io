@@ -1,4 +1,4 @@
-# lubovger.github.io
+# https://anzhelika7a.github.io/top10crm/
 ## Сравнительный анализ.ТОП 10 CRM
 
 ## [ CRM  МойСклад ] (https://crmindex.ru)
